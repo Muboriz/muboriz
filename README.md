@@ -1,0 +1,3 @@
+
+# muboriz 
+Mirzoev Mubooriz
